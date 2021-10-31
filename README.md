@@ -1,2 +1,0 @@
-# sciaobelo
-dio merda
